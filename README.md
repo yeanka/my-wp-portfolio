@@ -1,6 +1,5 @@
-# my-wp-portfolio
-WordPress Website I've been singlehandedly developed.
-
+# Only WordPress
+These are the ones I can remember for now, the list will definitely keep increasing.
 
 
 https://leadforteijmb.com.ng
