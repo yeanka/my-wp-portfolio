@@ -12,6 +12,7 @@ https://landaleads.com
 https://passionatecorridor.com
 https://Noveltyshop.com.ng
 https://enchantedlounge.com
+https://enchantedlounge.net
 https://leamconsulting.com
 https://elearning.leamconsulting.com
 https://christlandmarkministries.org
